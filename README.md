@@ -12,3 +12,6 @@ Some fun facts about me!
 - 🏋🏽‍♀️ I love strength training & pilates.
 - 🍱 I love trying out new restaurants with my husband & friends.
 - 🌈 Pronouns: she/her
+
+Please, feel free to reach out to me on GitHub or LinkedIn!
+
