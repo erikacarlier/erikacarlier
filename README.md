@@ -11,4 +11,3 @@ Here are some ideas to get you started:
 - 🏋🏽‍♀️ I love strength training & pilates.
 - 🍱 I love trying out new restaurants with my husband & friends.
 - 🌈 Pronouns: she/her
--->
